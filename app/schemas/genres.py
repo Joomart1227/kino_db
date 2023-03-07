@@ -1,0 +1,1 @@
+# TODO: Napisaty shemy dlia janrov
